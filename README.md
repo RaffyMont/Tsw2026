@@ -1,3 +1,3 @@
-# TSW2026!
+# TSW2026
 
 Cambiato2
